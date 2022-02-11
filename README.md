@@ -1,4 +1,4 @@
-# climatespringpdx.github.io
+# Climate Spring
 
 This spring (2022), the Climate Spring Collective is hosting Climate Spring, a month-long, citywide festival celebrating the climate that sustains us and the movement to sustain our climate.
 
